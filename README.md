@@ -1,2 +1,2 @@
 # instagram
-reels sharing
+social media
